@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Reflections on First Semester in Year 3
-date: 2025-01-30 23:24:45
+date: 2025-01-30 23:24:45 +08:00
 ---
 
 ## "Study"  

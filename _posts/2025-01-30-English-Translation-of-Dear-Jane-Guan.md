@@ -8,7 +8,7 @@ title: English Translation of Dear Jane - Guan (慣)
 _慣_(which means "Getting used to") is a song by a boyband called Dear Jane in Hong Kong. Here is my (beginner-level) translation.  
 
 
-翻開一張張舊相片  
+<br>翻開一張張舊相片  
 
 Flipping open old photos one by one  
 
@@ -25,7 +25,7 @@ Getting used to not meeting each other
 Don't need to see you even as I close my eyes  
 
 
-不想聽的歌在耳邊  
+<br>不想聽的歌在耳邊  
 
 Song I don't want to hear is still ringing in my ears  
 
@@ -42,7 +42,7 @@ Learnt to stand by my belief
 Those that sink like a stone have to be left stranded  
 
 
-*要扮作灑脫 無奈這現實未免太絕  
+<br>*要扮作灑脫 無奈這現實未免太絕  
 
 Want to act casual  
 
@@ -55,7 +55,7 @@ I don't cry and don't want to say
 but in the end my bubble is popped  
 
 
-#我認我還未很慣 半夜裡無力支撐  
+<br>#我認我還未很慣 半夜裡無力支撐  
 
 I admit I am still not used to it  
 
@@ -84,7 +84,7 @@ seems extra tough
 I am still not used to being lonely  
 
 
-一雙刀叉 一隻水杯  
+<br>一雙刀叉 一隻水杯  
 
 One set of cutley  
 
@@ -105,7 +105,7 @@ It's exhausting to forcefully talk too much
 Repeat * #  
 
 
-從明亮到漆黑  
+<br>從明亮到漆黑  
 
 From light to dark  
 

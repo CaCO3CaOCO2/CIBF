@@ -1,6 +1,7 @@
 ---
 layout: post
 title: English Translation of Dear Jane - Guan (慣)
+date: 2025-01-30 18:16:45
 ---
 
 <https://www.youtube.com/watch?v=sdVyWg8Jmk0>  

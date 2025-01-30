@@ -3,7 +3,8 @@ layout: post
 title: English Translation of Dear Jane - Guan (慣)
 ---
 
-<https://www.youtube.com/watch?v=sdVyWg8Jmk0>
+<https://www.youtube.com/watch?v=sdVyWg8Jmk0>  
+
 _慣_(which means "Getting used to") is a song by a boyband called Dear Jane in Hong Kong. Here is my (beginner-level) translation.  
 
 

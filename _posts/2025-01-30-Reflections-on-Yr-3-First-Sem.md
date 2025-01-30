@@ -10,7 +10,7 @@ The weekly work becomes "required reading", which I gave up reading within a wee
 Course instructors tried (really hard) to engage students, interact and discuss, especially during tutorials.
 Sometimes I felt a bit guilty, because I didn't do the readings and thus have not enough of material/ basic knowledge to contribute.
 The worst part is when virtually _no_ _one_ did the readings, or maybe some were shy, that the whole class went into awkward silence mode. 
-And occasionally the class would be the day of deadlines for assignments, so everyone was doing other work instead of really attending the class.
+Occasionally the class would be on the day of deadlines for assignments, and everyone was doing other work instead of really attending the class.
 So the teachers would just be left there hanging, which I don't know what we learn from it anymore. <br>
 
 
@@ -28,7 +28,8 @@ Fortunately, some are kind enough to include a reading tutorial/ guide in my cou
 The steps could be as follows:
 1. Identify the argument
 2. See if the evidence build the argument strongly enough
-3. Does, and if so, how the argument relates to/ contradicts other viewpoints
+3. Does, and if so, how the argument relates to/ contradicts other viewpoints <br>
+
 I think what was different from learning from textbooks and past papers during my secondary school days, may be how we can "critique" the author's work, around one's argument.
 But it makes me feel inferior, as while the author has all the expertise and knoweledge in his own research, I can only read and trust the detailed record is valid.
 Particular if we consider how the contexts and concrete examples/cases matter towarding forming a strong argument, I am still a bit confused.  
@@ -49,8 +50,8 @@ And always try to enjoy some part of working.<br>
 ## Health  
 Pretty bad. I think this took a huge toll on my school and work. Crying to sleep or until my eyes hurt most of the days really isn't an ideal situation.<br>
 ## People  
-Made a friend or two, and realized finding those who fit is important.<br>
+Made a friend or two, and realized finding those who match well is important.<br>
 
 ## Coming Up Next...?  
 Get my health issues sorted out (for the most part), and do more focusing/ self-monitoring. Learn to get (at least) some fun of doing "boring" things,
-such as going to class, doing grocery, or whatever. Work and start cleaning up the debt. Ask myself what I am thinking and how I am feeling more. And be grateful I am still living.
+such as going to class, doing grocery, or whatever. Work and start cleaning up the debt. Ask myself what I am thinking and how I am feeling more, and be grateful I am still living.

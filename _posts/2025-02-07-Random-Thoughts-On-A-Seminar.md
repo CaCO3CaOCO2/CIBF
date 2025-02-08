@@ -7,7 +7,7 @@ Here are just some very unorganized thoughts on a seminar I attended today, whic
 
 As predicted, it was full house with a lot of the professor's current and past students, and there is much vibrant energy in the room. The professor is such a natural talented speaker. She sounds confident and looks passionate. Very sociable, interacting with the front audience so easily. I kinda get jealous of both how she can articulate well and the friendliness shown. Is responsive in a nice way by always providing some kind of feedback, shows curiousity and patience when listening to others' questions.
   
-<br>My brain has been on a slowed floaty mode since restarting Silexan, and it has to automatically change her voices into words for me to register meanings better. On the bright side, it is way less noisy or loud than usual.   
+<br>My brain has been on a slowed floaty mode since restarting Silexan, and it has to automatically change her voices into imagining words visually for me to register meanings better. On the bright side, it is way less noisy or loud than usual.   
   
   There are some interesting ideas I learn.
 One is the concept of triangulation from Murray Bowen . It is about using a third person (outsider) to alleivate the tension between two people talking. One example is gossiping about the other guy during conversations.   

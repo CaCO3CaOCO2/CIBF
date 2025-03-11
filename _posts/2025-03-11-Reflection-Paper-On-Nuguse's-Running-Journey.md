@@ -62,7 +62,7 @@ Policy in Britain back then claimed that sport can bond people across national b
 From the article, only the latter part is true. Nuguse, representing his homeland, held the U.S. national flag when he took pictures after winning. Furthermore, at the World Athletics Championships, athletes’ vests are printed with the name of their country.  This shows clues of nationalism.
 
 
-On the other hand, examples from this news report didn’t show signs of sports bonding people from different countries. Instead, Josh Kerr (ironically an athlete from the Great Braintian), and Jakob Ingebrigtsen, another elite from Norway, have been having verbal “clash”, with Kerr regarding Ingebrigtsen’s comments as “disrespectful”. He also said “we (Ingebrigtsen and I) don’t like each other.” Rather than bonding, the athletes representing two countries are having “real beef”.
+On the other hand, examples from this news report didn’t show signs of sports bonding people from different countries. Instead, Josh Kerr (ironically an athlete from the Great Britain), and Jakob Ingebrigtsen, another elite from Norway, have been having verbal “clash”, with Kerr regarding Ingebrigtsen’s comments as “disrespectful”. He also said “we (Ingebrigtsen and I) don’t like each other.” Rather than bonding, the athletes representing two countries are having “real beef”.
 
 
 

@@ -5,7 +5,7 @@ date: 2025-01-30 23:24:49 +08:00
 ---
 
 ## "Study"  
-Officially this is my first semester in humanities, which really is quite different from STEM. 
+Officially this is my first semester in humanities, which really is quite different from secondary schools, or in faculty of science/ engineering. 
 There are no more weekly problem sets and standardized exams. 
 The weekly work becomes "required reading", which I gave up reading within a week after school began.
 Course instructors tried (really hard) to engage students, interact and discuss, especially during tutorials.

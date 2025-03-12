@@ -8,7 +8,7 @@ How would you critically analyse positive news in Sociology or in Anthropology?
 The short answer is: you don’t. Or maybe with talent, you could do a fantastic job out of it, but I can’t. Yet.
 So here is me forcing to spit out 1400 words, only to realize how juiceless, trivial and boring it is, then decided to scrap it and rewrite the whole thing with another piece of news instead.  
 
-The recent news report I picked is about [Yared Nuguse’s journey in middle- distance running] (https://edition.cnn.com/2025/03/05/sport/yared-nuguse-running-spt-intl/index.html). It talks about how Nuguse went from a “scrawny” teen, whose the only sports he cared about is bowling, to an elite runner
+The recent news report I picked is about [Yared Nuguse’s journey in middle- distance running](https://edition.cnn.com/2025/03/05/sport/yared-nuguse-running-spt-intl/index.html). It talks about how Nuguse went from a “scrawny” teen, whose the only sports he cared about is bowling, to an elite runner
 <br>
   
 Reflecting on this article, I will analyse the news and connect it to various topics, including the modernization of sports and different sociological approaches and theories, such as the conflict theory and agency theories.
